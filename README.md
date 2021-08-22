@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @t5z / 9nx#0001 / kunt#0001.
+- 👀 I suck at Fortnite, 1v1, Repuls, school, and coding.
+- 🌱 I suck up to AdamTMMG because I like being his little servant bitch. I love when he calls me second best next to him and can't help but suck his nuts.
+- 💞️ I pose as a 15 year old in Discord because I'm insecure about being toxic to minors as an adult alcoholic.
+- ✨ My parents hate that my school grades suck but I can make a living from gay cams after losing weight.
+- 📫 How to reach me: 9nx#0001 on Discord.
